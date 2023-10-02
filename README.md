@@ -32,5 +32,5 @@ I'm [Laura](https://github.com/your-username), a developer from Germany. I like 
 
 ## Contact
 
-💼 LinkedIn: [Laura Schubert](https://www.linkedin.com/in/laura-schubert-029b64252/)https://www.linkedin.com/in/laura-schubert-029b64252/)
+💼 LinkedIn: [Laura Schubert](https://www.linkedin.com/in/laura-schubert-029b64252/)
 
